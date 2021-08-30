@@ -1,3 +1,4 @@
+![IMG_1942 (1)](https://user-images.githubusercontent.com/89500945/131275863-827e3ee0-0747-4865-91af-36ba7d442c5e.jpg)
 # about me
 Nathaniel Alexander
 
