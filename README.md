@@ -3,4 +3,6 @@ README
 
 The repo 
 
-## uses Bulma for styling
+## uses Bulma for styling!
+
+Fall2021
